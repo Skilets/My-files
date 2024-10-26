@@ -1,6 +1,6 @@
-## Можете что угодно делать тут.
-Если что то хотите закинуть то посмотрю, подумаю и если сойдёт то приму.
+## ![image](https://github.com/user-attachments/assets/9e502112-3935-4292-96d4-866dd025ca27)
 
-Я не желаю зла. Так что будем добрыми :3
+![image](https://github.com/user-attachments/assets/1c6f2d9a-9be5-45f0-b8c7-d40513258742)
+
 
 ![image](https://github.com/user-attachments/assets/aa063330-b243-4ba1-a720-bea228b774e9)

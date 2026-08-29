@@ -1,3 +1,4 @@
+<img width="360" height="448" alt="CUB" src="https://github.com/user-attachments/assets/8ab9afb0-a720-4296-a576-310da74b6b56" />
 ## ![image](https://github.com/user-attachments/assets/30c1cede-d9e8-49cd-b342-3b5cabdd516e)
 
 
